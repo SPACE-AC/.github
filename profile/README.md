@@ -3,4 +3,4 @@
 
  Founded: 2018
 
-🙋‍♀️ Aerospace enguineering club at Assumption College
+🙋‍♀️ Aerospace engineering club at Assumption College
